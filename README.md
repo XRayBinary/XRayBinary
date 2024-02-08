@@ -1,5 +1,5 @@
 <img src="https://imgur.com/PGBECbO.png">
-<img src ="https://imgur.com/VAY8vta.png">
+<img src ="https://imgur.com/0rsJOJp.png">
 
 ## ABOUT ME
 - 👦   Hi. I'm David Sánchez
