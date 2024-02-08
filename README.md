@@ -1,5 +1,5 @@
 
-<img src="https://i.imgur.com/ZctL080.png">
+<img src="https://imgur.com/PGBECbO.png">
 
 ## Sobre mi
 - ⭐ Github Star ⭐ 
