@@ -1,4 +1,4 @@
-<img src="https://imgur.com/a/7sGqeuj.png">
+<img src="https://imgur.com/a/8M0LSpO.png">
 
 ## ABOUT ME
 
