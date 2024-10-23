@@ -1,4 +1,3 @@
-<img src="https://imgur.com/zjPm4sP.png">
 
 ## ABOUT ME
 
